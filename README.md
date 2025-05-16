@@ -1,6 +1,13 @@
 <div align=center'>
 
-![bucky bucky](https://github.com/user-attachments/assets/1164beec-017b-4034-a82f-4f91a95cabff)
+![image](https://github.com/user-attachments/assets/497ad23e-e64c-408b-a87a-15d2f63aba5e)
 
-![husband getting a cool bath](https://github.com/user-attachments/assets/4df91c13-011e-4eae-b388-175c635e6e0e)
+"ᴡʜᴏ ᴛʜᴇ ʜᴇʟʟ ɪꜱ ʙᴜᴄᴋʏ?"
+
+![image](https://github.com/user-attachments/assets/1840ded3-ee1d-4317-bcee-a2c1c0c3e0d5)
+
+![image](https://github.com/user-attachments/assets/3ae9044d-9e7f-4485-bc28-597ebd08036e)
+
+
+
 
